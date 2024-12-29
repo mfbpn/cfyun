@@ -1,6 +1,6 @@
 # CF机场官网地址
 
-最新地址：[cfyun.top](https://cfyun.top/#/login?code=3y8e68Ni)
+最新地址：[cfyun.top](https://cfyun.top/#/login?code=LeT1bEUH)
 
 ## CF机场介绍
 
